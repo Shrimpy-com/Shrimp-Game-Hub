@@ -1,2 +1,1 @@
-# Shrimp-Game-Hub
-The Most SHRIMPRESSIVE Games On The Internet! 
+# JUST A HUB FOR SHRIMP GAME BOX
